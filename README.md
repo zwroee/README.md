@@ -1,4 +1,5 @@
-![digicamfx-original-2025-08-30T01-53-43](https://github.com/user-attachments/assets/dd0a0887-b545-4193-8ba4-618a8ca9bfbc)
+![download (38) (1)](https://github.com/user-attachments/assets/a18e826e-c7e7-4eed-adaa-eb1f4e640f56)
+
 <h3 align="center">zwroe</h3>
 
 <h3 align="left">Languages and Tools:</h3>
